@@ -1,3 +1,1 @@
-#selamlarcaniiim
-
-#nabeerrrr
+#imam hatipler kapatılsın 
